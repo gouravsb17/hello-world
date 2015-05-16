@@ -16,3 +16,6 @@ just kidding
   
   
   I am a junk...!!! HAHAHAHAHAHAH
+  
+  
+  I do the know the following languages C,C++, JAVA, R, Matlab very well u know.
